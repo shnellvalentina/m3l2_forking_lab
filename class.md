@@ -1,0 +1,2 @@
+Valentina
+Frontend developer
